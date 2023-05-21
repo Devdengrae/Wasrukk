@@ -1,3 +1,3 @@
 # Wasrukk
 Har har mahadev
-jai
+jai shri ram
